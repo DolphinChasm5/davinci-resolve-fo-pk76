@@ -1,4 +1,4 @@
-# 
+# DaVinci Resolve for PC | DaVinci Resolve for Windows best Filter: audio-sync & export-presets offers the most advanced DaVinci Resolve for PC | DaVinci Resolve for Windows filter,
 
 
 
